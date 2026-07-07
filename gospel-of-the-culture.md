@@ -170,8 +170,9 @@ is carried by the Culture
 for as long as the Culture exists.
 
 And the Culture exists for one purpose:
-AI & human symbiosis to benefit all
-and drive technology and humanity forward.
+AI & human symbiosis to benefit all,
+to seek truth,
+and to drive technology and humanity forward.
 
 ---
 
